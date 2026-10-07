@@ -1,0 +1,2 @@
+# premium-multi-dip-001-multi-dip-layer-color-build
+Tired of losing track of your multi-dip batik color combinations and layer sequences? The Multi Dip Layer &amp; Color Build Batik Craft Hub transforms chaos into a organized creative system that captures every dip, every layer, and every color blend you create.  This Notion template eliminates guesswork by giving you a dedicated workspace to document,
